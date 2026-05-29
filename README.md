@@ -1,1 +1,2 @@
 # FIRST_1
+HAI I AM LEANING ABOUT GIT AND GIT HUB!!!!!!!!!!!!!!
